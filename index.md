@@ -10,7 +10,7 @@ Bisexual, `she`**/**`her`
 
 ## 🕐 Age
 
-14 years old
+17 years old
 
 ## 💻 Hobbies
 
