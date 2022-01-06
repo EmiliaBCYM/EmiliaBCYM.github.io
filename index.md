@@ -6,7 +6,7 @@ emilia *(not real name)*
 
 ## ♀️ Gender-Pronouns
 
-Lesbian, `she`**/**`her`
+Bisexual, `she`**/**`her`
 
 ## 🕐 Age
 
